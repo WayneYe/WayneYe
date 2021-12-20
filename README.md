@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @WayneYe
+- 👀 I’m interested in hacking, ski/snowboard, soccer.
+- 🌱 I’m currently learning big data/AI ML.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: https://wayneye.com
