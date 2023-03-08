@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @WayneYe
 - 👀 I’m interested in hacking, ski/snowboard, soccer.
-- 🌱 I’m currently getting rusty.
+- 🦀 I’m currently getting rusty.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: https://wayneye.com
+- 📫 How to reach me: https://wayneye.me
